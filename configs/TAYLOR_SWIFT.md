@@ -31,7 +31,7 @@ Posts about Taylor Swift
 - Eras Tour
 - Swiftie
 - Swifties
-- TSwift
+- taylorswift
 
 # avatar
 
